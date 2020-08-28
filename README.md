@@ -1,0 +1,2 @@
+# TextToClip
+TextToClip Privacy Policy
